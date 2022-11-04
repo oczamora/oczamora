@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @oczamora
-- 👀 I’m interested in ... Learning New Things, Nutritious Meals & Languages 
+- 👀 I’m interested in ... Learning New Things, Resourcefulness, Physical fitness, Nutritious Meals & Languages 
 - 🌱 I’m currently learning ...GitHub
-- 💞️ I’m looking to collaborate on ... Improving Processes & Workplace Culture & Efficady 
+- 💞️ I’m looking to collaborate on ... Improving Processes & Workplace Culture & Efficiency
 - 📫 How to reach me ... Slack is best 
 
 <!---
