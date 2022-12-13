@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @oczamora & I support VP of Customer Outcomes Michael Goetz 
-- I work under Lori-Propp 
+- 👩🏼‍💻 I work under Lori-Propp Anderson 
 - 👀 I’m interested in ... developing work alliances and facilitating projects & improvements forward 
 - 🌱 I’m currently learning ...GitHub & how teams can add value and make an impact
 - 💞️ I’m looking to collaborate on ... Improving Processes & Workplace Culture & Efficiency
